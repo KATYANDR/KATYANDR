@@ -1,1 +1,1 @@
-- 👋 Hi, I’m Kate Andronova. this is my website:
+- 👋 Hi, I’m Kate Andronova
